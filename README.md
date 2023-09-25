@@ -1,1 +1,2 @@
-# students
+# group
+Join and enjoy
